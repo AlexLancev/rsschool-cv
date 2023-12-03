@@ -1,4 +1,4 @@
-![img](https://avatars.githubusercontent.com/u/92637953?s=400&u=de52f69c99919d5bef2baa36a71812b19a076959&v=4)
+пше
 
 # **Aleksei Vavulo**
 
