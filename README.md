@@ -1,1 +1,0 @@
-https://AlexLancev.github.io/rsschool-cv/
