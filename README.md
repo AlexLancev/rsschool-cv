@@ -1,0 +1,1 @@
+https://inalitvinka.github.io/rsschool-cv/cv https://AlexLancev.github.io/rsschool-cv/
